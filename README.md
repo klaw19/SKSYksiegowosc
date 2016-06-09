@@ -1,0 +1,2 @@
+# SKSYksiegowosc
+pliki do wykonania
